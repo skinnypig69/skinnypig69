@@ -4,6 +4,3 @@
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
 
-<!---
-https://www.instagram.com/_sudipta___/
---->
