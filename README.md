@@ -1,5 +1,5 @@
 # 💫 About Me:
-👋 Hi, I’m @skinnypig69<br>👀 I’m interested in webdev, web3, unity projects<br>🌱 I’m currently learning<br>💞️ I’m looking to collaborate <br>📫 How to reach me SudipTA#7982 @discord
+👋 Hi, I’m @skinnypig69<br>👀 I’m interested in webdev, web3, unity projects<br>🌱 I’m currently learning<br>💞️ I’m looking to collaborate <br>📫 Reach me at : SudipTA#7982 @discord
 
 
 ## 🌐 Socials:
